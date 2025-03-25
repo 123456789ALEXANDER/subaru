@@ -6,9 +6,8 @@
 ![me](https://github.com/user-attachments/assets/2941157b-7bc8-4f87-87dc-de578510884f)
 ![natsuki](https://github.com/user-attachments/assets/3b301008-073b-4f25-9f9c-5aa7ef7fd6a2)
 ![subaru](https://github.com/user-attachments/assets/d293f467-09ab-4f21-b55b-a37d39c814de)
-
-
 ![5](https://github.com/user-attachments/assets/07cc9f25-a81e-4e4b-8a17-e7704902945b)
+![8](https://github.com/user-attachments/assets/452cab26-4256-462f-9604-874a061f4b66)
 ![6](https://github.com/user-attachments/assets/73c6d1e4-b686-4098-928a-5ab358fae617)
 ![8](https://github.com/user-attachments/assets/452cab26-4256-462f-9604-874a061f4b66)
 ![9](https://github.com/user-attachments/assets/b85a7daa-8f77-4dc1-9606-169ecf02d257)
