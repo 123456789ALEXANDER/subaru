@@ -9,6 +9,5 @@
 ![5](https://github.com/user-attachments/assets/07cc9f25-a81e-4e4b-8a17-e7704902945b)
 ![8](https://github.com/user-attachments/assets/452cab26-4256-462f-9604-874a061f4b66)
 ![6](https://github.com/user-attachments/assets/73c6d1e4-b686-4098-928a-5ab358fae617)
-![8](https://github.com/user-attachments/assets/452cab26-4256-462f-9604-874a061f4b66)
 ![9](https://github.com/user-attachments/assets/b85a7daa-8f77-4dc1-9606-169ecf02d257)
 
